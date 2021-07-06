@@ -1,8 +1,10 @@
 ### Strogonoll de Frango :chicken:   
 
-#Ingredientes
 
-* 1 quilo de peito de franco sem pele
+
+*Ingredientes
+
+- 1 quilo de peito de franco sem pele
 
 * 1 tablete de caldo de galinha
 
@@ -20,11 +22,13 @@
 
 *  Batata palha e arroz branco para acompanhar
 
+  *Modo de Preparo*
+
   ​
 
-  #Modo de Preparo
+  ​
 
-  1. Em uma panela a fogo médio 
+  ​
 
   ​
 
