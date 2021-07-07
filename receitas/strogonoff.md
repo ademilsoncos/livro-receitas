@@ -1,36 +1,46 @@
 ### Strogonoll de Frango :chicken:   
 
+*Ingredientes*
 
+- 3 peitos de frango cortados em cubos
 
-*Ingredientes
+- 1 dente de alho picado
 
-- 1 quilo de peito de franco sem pele
+- sal e pimenta a gosto
 
-* 1 tablete de caldo de galinha
+- 1 cebola picada
 
-* 3 colheres de sopa de óleo
+- 2 colheres sopa de maionese
 
-* 2 latas de creme de leite sem soro
+- 1 colher de manteiga
 
-* 2 colheres de sopa de molho de tomate
+- 1/2 [copo de ketchup
 
-* 2 colheres de sopa de ketchup
+- 1/3 copo de mostarda
 
-* 2 colheres de sopa de mostarda
+- 1 copo de cogumelos
 
-* Champingnon
+- 1 copo de creme de leite
 
-*  Batata palha e arroz branco para acompanhar
+- batata palha a gosto
+
+  ​
 
   *Modo de Preparo*
 
-  ​
+  1. Em uma panela, misture o frango, o alho, a maionese, o sal e a pimenta.
+  2. Em uma frigideira grande, derreta a manteiga e doure a cebola.
+  3. Junte o frango temperado até que esteja dourado.
+  4. Adicione os cogumelos, o ketchup e a mostarda.
+  5. Incorpore o creme de leite e retire do fogo antes de ferver.
+  6. Sirva com arroz branco e batata palha.
 
-  ​
 
-  ​
 
-  ​
+​
 
+​
+
+​
 
 
